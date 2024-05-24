@@ -9,5 +9,3 @@ I study in school Prof Francelina Franco
 I'am From Brazil
 
 I live in the city of Buri/ state of Saint Paul
-
-The best president in Brazil Is Jair Bolsonaro
