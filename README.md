@@ -6,4 +6,5 @@ I study in school Prof Francelina Franco
 
 I'am From Brazil
 
-i live in the city of Buri/ state of saint paul
+I live in the city of Buri/ state of Saint Paul
+
